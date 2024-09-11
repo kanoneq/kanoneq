@@ -1,4 +1,4 @@
-hi, im kanoneq, if u want something from me send an invite on discord (nick "kanoneq") im trying to learn anything actually.
+hi, im kanoneq, if u want something from me send an invite on discord (nick "kanoneq._._") im trying to learn anything actually.
 
 <!---
 kanoneq/kanoneq is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
