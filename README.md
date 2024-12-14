@@ -1,6 +1,1 @@
-hi, im kanoneq, I'm trying to learn anything actually.
-
-<!---
-kanoneq/kanoneq is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+no, I'm not emo and no, I'am NOT 30% hetero
